@@ -26,7 +26,8 @@ I work on a few projects when I'm free, namely:
 
 ## Find me
 You can find me at the following locations:
-- Discord: @eclipsis._
+- Email: eclipsis.25x@gmail.com
+- Discord: [@eclipsis._](https://discordapp.com/users/eclipsis._)
 - Github: [github.com/apparentlyeclipsis](https://github.com/apparentlyeclipsis) (you're here already) <sub>Portfolio website: [apparentlyeclipsis.github.io](https://apparentlyeclipsis.github.io/)</sub>
 
 - Roblox: [@apparentlyeclipsis](https://www.roblox.com/users/222634698/profile/)
